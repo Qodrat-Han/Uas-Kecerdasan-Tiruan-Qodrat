@@ -1,1 +1,0 @@
-# Uas-Kecerdasan-Tiruan-Qodrat
